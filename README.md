@@ -6,7 +6,7 @@ Web developer | Ui&Ux developer
 
 * 🌍  I'm based in India
 * ✉️  You can contact me at [panwarhimanshu4321@gmail.com](mailto:panwarhimanshu4321@gmail.com )
-* 🧠  I'm learning Eathical hacking
+* 🧠  I'm learning Ethical hacking
 
 ### Skills
 
